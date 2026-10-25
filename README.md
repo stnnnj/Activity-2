@@ -1,1 +1,1 @@
-Edited by Partner B
+Edited by Partner A
